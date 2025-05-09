@@ -27,6 +27,6 @@ This tool is for educational and experimental purposes only. Using it on real mo
 
 You’ve been warned. Use smart. Stay hidden.
 
-$400 pay now : https://rzp.io/rzp/B1Ap8YI
+$400 pay now : https://roulette-tool-69757.web.app
 
 Then come here and get your code :)
